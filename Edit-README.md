@@ -1,0 +1,1 @@
+Hello! My name is Koh Zi Yao, I'm a standard 5 student in Malaysia, which makes me 11 years old. I don't even know if I can use GitHub when I'm eleven. I like to browse the internet for things when I'm bored - that's how I found GitHub. That all!
